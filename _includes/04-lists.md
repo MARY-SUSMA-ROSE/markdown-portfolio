@@ -1,1 +1,6 @@
-Replace this with a list of your favorite things.
+DIZZLE BISTRO
+ODEL
+GOLDEN BAKERY
+SABSAN'S HANGOUTS
+KFC
+DOMINOS
